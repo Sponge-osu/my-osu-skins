@@ -2,7 +2,7 @@
 
 # [My Youtube](https://www.youtube.com/channel/UCXTBCKKW_vSsCDzOv24Ey3Q)
 
-# [Chino Kuube Edit](https://mega.nz/file/1uBCEaQY#2zL1QBIUZjsk8hyuhTdaHs6-9j0kqf1G-nMuJK_JZPU) 
+# [Chino/Sytho Kuube Edit](https://mega.nz/file/1uBCEaQY#2zL1QBIUZjsk8hyuhTdaHs6-9j0kqf1G-nMuJK_JZPU) 
 ![](https://cdn.discordapp.com/attachments/900793512918913094/971478600274550894/unknown.png?size=4096)
 
 # [Main Mixed Skin](https://mega.nz/file/EmJShYDJ#c-iMvany0DTbJt56eU6qqu67QFP1b0oMkb5JxPdhWzo)
