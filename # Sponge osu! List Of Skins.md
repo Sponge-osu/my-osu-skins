@@ -2,10 +2,14 @@
 
 # [My Youtube](https://www.youtube.com/channel/UCXTBCKKW_vSsCDzOv24Ey3Q)
 
+# [HFD (Hatsune Fumo Doremy)](https://mega.nz/folder/l6QHhKrT#pYLqHxrbtUkyHAGd4Kjcaw) 
+![](https://media.discordapp.net/attachments/900793512918913094/989518193875898440/unknown.png?width=1273&height=716)
+There are a few versions of this and the skin i use the most
+
 # [Chino/Sytho Kuube Edit](https://mega.nz/file/1uBCEaQY#2zL1QBIUZjsk8hyuhTdaHs6-9j0kqf1G-nMuJK_JZPU) 
 ![](https://cdn.discordapp.com/attachments/900793512918913094/971478600274550894/unknown.png?size=4096)
 
-# [Main Mixed Skin](https://mega.nz/file/EmJShYDJ#c-iMvany0DTbJt56eU6qqu67QFP1b0oMkb5JxPdhWzo)
+# [Aristia Mixed Skin](https://mega.nz/file/EmJShYDJ#c-iMvany0DTbJt56eU6qqu67QFP1b0oMkb5JxPdhWzo)
 ![](https://cdn.discordapp.com/attachments/900793512918913094/971479614637637650/unknown.png?size=4096)
 
 # [Hatsune Miku](https://mega.nz/file/kqoiUbDJ#J-TcEFScDUL_ZK9bXUKsJnfx8NBr00yohUhy_rb1qOo)
